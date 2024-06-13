@@ -1,13 +1,13 @@
 ## Oii! Eu sou a Dani!
 
-→ 06 | 2ºEM 
+→ 06 | 3ºEM 
 
-→ meta: Artes cênicas ou Engenharia aeroespacial 
+→ meta: Engenharia Mecânica ou Artes Cênicas
 
 → lang: inglês e francês 
 
 
-♡ vôlei, atletismo, livros, filmes, séries, animes, star wars, marvel…
+♡ vôlei, atletismo, livros, filmes, séries, animes, Star Wars, Marvel, O Senhor dos Anéis...
 
 <div align="center">
   <a href="https://github.com/DaniIvanike">
